@@ -1,3 +1,3 @@
 # annet
 i'm frolova I love Tiktok 
-i like a deepins and a joj and a necoglai
+i like a deepins and a jojo and a necoglai
